@@ -12,6 +12,3 @@ Media: Online, physical, or otherwise mediums of media, including but not limite
 
 ## Intentions.
 I intend to educate a class on LGBTQIA+ media and individuals to clarify any common misconceptions and taboos surrounding them. Through explanation, answering questions and proof of research. Aided with examples, interview transcripts, and ideally, enquiry based learning.
-
-
- also ven if youre here hii :333 
