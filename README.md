@@ -1,5 +1,5 @@
 # The Yuri Repository (Feat. Yaoi)
-Hii i'm Mika and this is a repository for notes, screenshots, photos, ect. about my EIF task about misconceptions and taboos around LGBTQIA+ people and media.
+Hii this is a repository for notes, screenshots, photos, ect. about my EIF task about misconceptions and taboos around LGBTQIA+ people and media.
 
 ## What does this mean?
 This repository is like a digital folder for my research and notes for this task.
